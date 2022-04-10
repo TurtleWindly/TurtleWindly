@@ -7,7 +7,7 @@
   
  ♪(^∇^*)    I’m making my project for fun and explore the Internet
 
- (→_→)      How to reach me email: relax.companii@gmail
+ (→_→)      How to reach me email: luxwarmwinter@gmail
  
  ((*/￣︶￣/) My adventure come along with linux mint and Defold
  
