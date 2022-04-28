@@ -3,13 +3,13 @@
  
  (～￣▽￣)～ I’m interested in game development and computer science
  
-  (∩^o^)⊃━☆ I’m currently using Lua at my primary programming language
+  (∩^o^)⊃━☆ I’m a rustacean
   
  ♪(^∇^*)    I’m making my project for fun and explore the Internet
 
  (→_→)      How to reach me email: luxwarmwinter@gmail
  
- ((*/￣︶￣/) My adventure come along with linux mint and Defold
+ ((*/￣︶￣/) My adventure come along with linux and I love it
  
  (っ °Д °;)っ But i have no idea what i am doing
  
