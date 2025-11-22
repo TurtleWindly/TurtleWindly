@@ -7,7 +7,7 @@
   
  ♪(^∇^*)    I’m making my project for fun and explore the Internet
 
- (→_→)      How to reach me email: luxwarmwinter@gmail
+ (→_→)      How to reach me email: quachquangminh2006@gmail.com
  
  ((*/￣︶￣/) My adventure come along with linux and I love it
  
