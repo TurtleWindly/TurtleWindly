@@ -7,7 +7,7 @@
 
  (っ °Д °;)っ But i have no idea what i am doing
 
-     (→_→)    How to reach me email: quachquangminh2006@gmail.com
+ (→_→)        How to reach me email: quachquangminh2006@gmail.com
    
 
 <!---
